@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @emillylinda
+- 👀 I’m interested in odontologia
+- 🌱 I’m currently learning  programação
+- 💞️ I’m looking to collaborate
+- 📫 How to reach me  instagram (@emilly.ffer)
